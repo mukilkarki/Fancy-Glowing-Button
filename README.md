@@ -6,7 +6,7 @@
 💜 Click Action
 ## Contact
 
-GitHub: mukilkarki
+GitHub: [[mukilkarki](https://github.com/mukilkarki)]
 
 Instagram: [[tiamat_wave](https://www.instagram.com/tiamat_wave)]
 
